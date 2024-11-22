@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Aikowrites
 - 👀 I’m interested in writing 
-- 🌱 I’m currently an high school student 
+- 🌱 I’m currently a high school student 
 - 💞️ I’m looking to collaborate on writing 
-- 📫 How to reach me @kurenai.gunjan my Instagram 
+- 📫 How to reach me @kurenai.aiko my Instagram 
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: I'm not normal 
 
